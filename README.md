@@ -11,5 +11,3 @@ Pros:
 ## References
 https://youtu.be/xTmU8ZImUO8?si=xQkhtl0WDxbkPyA9
 
-http://img.youtube.com/vi/xTmU8ZImUO8?si=xQkhtl0WDxbkPyA9/maxresdefault.jpg
-
